@@ -2,4 +2,4 @@
 - 👀 I’m interested in Computer Science
 - 🌱 I’m currently learning Computer Engineering
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me: davifuzo2002@gmail.com
+- 📫 How to reach me: daviofuzo@gmail.com
